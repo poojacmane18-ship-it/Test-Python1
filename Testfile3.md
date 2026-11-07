@@ -2,7 +2,7 @@
 
 *College or field:* IT
 
-*City:* Mumbai
+*City:* NAVI MUMBAI
 
 ## About me
 
